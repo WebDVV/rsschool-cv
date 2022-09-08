@@ -1,1 +1,1 @@
-# rsschool-cv
+https://WebDVV.github.io/rsschool-cv/
